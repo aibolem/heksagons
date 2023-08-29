@@ -1,4 +1,4 @@
-### bARYOჼ
+### bARYOჼ $Э€XÅgoჼ
 # ჼhexAgons
 [EKIM BO$TO©K 'MIKE BOSTOK' barionlegist:](https://gist.github.com/barionleg/c6356f2cc058f23377f285bb20fe5b2a
 ) 
